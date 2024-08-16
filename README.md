@@ -1,4 +1,4 @@
-👋 Hi, I’m Saranraj
+👋 Hi, I’m Saranraj,
 I really love to code and learn new technologies.
 <h1>Lᴀɴɢᴜᴀɢᴇs ᴀɴᴅ Tᴏᴏʟs</h1>
 
